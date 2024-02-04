@@ -1,1 +1,1 @@
-# My-Obsidian
+# My Obsidian
